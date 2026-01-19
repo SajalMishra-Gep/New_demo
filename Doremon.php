@@ -1,1 +1,1 @@
-Doremon with Nobita
+Hathori with Kenitchi
