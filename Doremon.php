@@ -1,1 +1,1 @@
-Hathori with Kenitchi
+Hathori Kenitchi
